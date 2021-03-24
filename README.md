@@ -1,1 +1,0 @@
-# samuelstruffert.github.io
